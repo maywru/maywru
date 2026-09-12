@@ -1,2 +1,2 @@
-<img width="736" height="736" alt="Adorno Divisorio Dorado PNG ,dibujos  Divisor, Divisor De Ornamento, Ornamento PNG y PSD para Descargar Gratis _ Pngtree" src="https://github.com/user-attachments/assets/1801c5bc-dcb1-42b4-a5b7-443d5cac3869" />
+<img width="500" height="500" alt="Adorno Divisorio Dorado PNG ,dibujos  Divisor, Divisor De Ornamento, Ornamento PNG y PSD para Descargar Gratis _ Pngtree" src="https://github.com/user-attachments/assets/1801c5bc-dcb1-42b4-a5b7-443d5cac3869" />
 
