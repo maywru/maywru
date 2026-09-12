@@ -1,2 +1,4 @@
-<img width="734" height="178" alt="Жемчужные бусы на прозрачном фоне_ смотрите и…" src="https://github.com/user-attachments/assets/8a1ca914-0818-43e1-b51b-4a1006d9a8b9" />
+![Uploading image.png…]()
+
 <img width="735" height="404" alt="97390410690823565" src="https://github.com/user-attachments/assets/28def6b4-9ef9-45de-ba98-69d3f1c5e935" />
+<img width="916" height="216" alt="image" src="https://github.com/user-attachments/assets/b0ba7155-fcf8-4268-9017-fbadba21e099" />
